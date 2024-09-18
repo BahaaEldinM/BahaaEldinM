@@ -18,6 +18,8 @@ Managed customer interactions and provided personalized eyewear recommendations.
 Achieved a 20% increase in sales through effective upselling and cross-selling techniques.
 Trained new staff on product knowledge and sales strategies.
 Implemented a customer feedback system that improved service quality and customer satisfaction.
+
+
 Sales Associate, Bostan Mall
 2023 - 2024
 
